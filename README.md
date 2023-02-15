@@ -34,4 +34,4 @@ Guidance note What’s on your website? Does your website use cookies? Please ch
 
 We are committed to protecting and respecting your privacy. We collect your queries, with your expressed permission, to generate your content. We do not use your data for any other purpose. By using our Service you understand and agree that we are just providing a platform for you.
 
-If you have any questions about our privacy policy, you can contact us at mohitmathur94@gmail.com
+If you have any questions about our privacy policy, you can contact us at movichat2020@gmail.com
